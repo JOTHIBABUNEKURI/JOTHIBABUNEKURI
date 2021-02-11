@@ -10,5 +10,5 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on technology  
 - 🥰 I would like to start a startup company 
 - 📫 How to reach me: find me instagram
-- 😄 Pronouns: NJB 
+- 😄 Pronoun: NJB 
 
